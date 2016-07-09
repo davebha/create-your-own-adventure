@@ -9,3 +9,7 @@ It was this [burger](http://www.supersizedmeals.com/food/images/articles/2009061
 Satisfied with the burger, He asked for the chef to come in his palace to thank him.
 
 Little did he know, that burger will change everything he knows....
+
+As he walked back to his place of residence,he started feeling dizzy.
+
+"Just a few steps ahead" he thought.Suddenly,everything went black!!
